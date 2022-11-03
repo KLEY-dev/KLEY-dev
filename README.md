@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KLEYpl
+- 👋 Hi, I’m @KLEY-dev
 - 👀 I’m interested in networking, programing, electronics and more
 
 📱  Discord: KLEY#0838\
